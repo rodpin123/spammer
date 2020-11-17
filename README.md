@@ -1,2 +1,3 @@
 # spammer
 Stupid spammer to send your friends spam messages...
+Make your friends happy by sending them The Lord of The Rings book with hundreds of messages on Whatsapp... Tehy'll love it!!!
